@@ -1,1 +1,5 @@
 ![Lucario Batalhando Animado](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExM29jMWl0M2Y5dXB2dnV1djdmbmY0Y3I5MG5ic212czJtbzF4Zno1biZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/5sogKRJpjbnjxr0kiQ/giphy.gif)
+
+![Lucario Batalhando Animado](https://media2.giphy.com/media/v1.Y2lkPTc5MGI3NjExenl0Z2F6aW43N29sdzZmYWl6YjZuNzNjY2RoNDIwbjA4NTVkdjRvMyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9Zw/mdhj3rmx5OsJTsSps0/giphy.gif)
+
+
