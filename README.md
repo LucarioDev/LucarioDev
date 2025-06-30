@@ -38,5 +38,3 @@ Aqui estão algumas das ferramentas e linguagens que eu mais uso e/ou estou apre
 ---
 <p align="center">
   "O caminho do desenvolvedor, assim como o caminho de um Lucario, é de constante aprimoramento e busca por aura no código."
-  <br><br>
-  ![Lucario Aura Sphere](https://c.tenor.com/Wp7D2VwYd08AAAAC/lucario-aura.gif) </p>
